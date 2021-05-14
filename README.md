@@ -1,4 +1,9 @@
 ### Hi there 👋 I´m a internet technical course student. Welcome! 
+My name is Manoela
+I`m 15 years old 
+I love to watch Harry Potter and i really love to read the Harry Potter`s books (they are amezing). i`m always listen music and dacing infont of the mirror. Sometimes i don`t like do study but i have to because I wanna be rich. 
+ps: i love books (give me books)
+
 
 
 <!--
